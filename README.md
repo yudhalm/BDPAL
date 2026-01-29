@@ -8,7 +8,7 @@
 - **Universitas** : Universitas AMIKOM Yogyakarta  
 - **Semester**    : Ganjil 2025/2026  
 
-## 👨‍🏫 Dosen Pengampu
+## 👨‍🎓Dosen Pengampu
 - Mulia Sulistiyono, S.Kom., M.Kom.
 
 ## 👥 Anggota Kelompok
